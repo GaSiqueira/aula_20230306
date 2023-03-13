@@ -6,4 +6,8 @@
 
 alte 2 ante
 
-alterei sem saber que o miguel alterou
+
+alterei sem saber que o miguel alterou (mantive)
+
+agr zuo dnv (mantive)
+
